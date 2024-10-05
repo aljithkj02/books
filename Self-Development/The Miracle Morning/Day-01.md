@@ -1,0 +1,10 @@
+
+- It's crucial for us to embrace the perspective that anything another person has overcome or accomplished is simple evidence that anything - and I mean anything - we need to overcome of want accomplish is possible for us, no matter what our past or current circumstances. It begins with accepting total responsibility for every aspect of your life and refusing to blame anyone else. The degree to which you accept responsibility for everything in your life is precisely the degree of personal power you have yo change or create anything in your life. It is important to understand that responsibility is not the same as blame. While blame determines who is at fault for something, responsibility determines who is committed to improving things.
+
+- If you want your life to be different, you have to be willing to do something different first.
+
+-  Everyday you and I wake up, we face the same universal challenge: to overcome mediocrity and live to our full potential. It's a great challenge in human history - to rise above our excuses, do what's right, give our best and create the Level 10 life we truly want - the one with no limits, the one so few people ever get to live.
+
+- The crucial question, the one that we must explore and find answer to is this: What can we do now to ensure that we don't end up struggling, like the 95% majority will?
+
+- Personal Insight: 95% of the people in the world are struggling to live. They are not able to live a life they want. These people end up their life with regrets and struggles physically, mentally, financially etc. We must search for the causes of mediocrity and solutions to save us from this trap.

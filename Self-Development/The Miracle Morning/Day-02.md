@@ -1,0 +1,13 @@
+- One of the most crippling causes of mediocrity i life is a condition I call rear-view mirror syndrome (RMS). Our subconscious minds are equipped with a self-limiting rear-view mirror, through which we continuously relive and recreate our past. We mistakenly believe that who we were is who we are, thus limiting our true potential in the present, based on the limitations of our past.
+
+- If you are to move beyond your past and transcend your limitations, you must stop living out of rear-view mirror and start imagining a life of limitless possibilities. Accept the paradigm : my past does not equal my future.
+
+- To defeat this cause of mediocrity, you need a life purpose, which can be any purpose you want. It can be anything that resonates with and inspires you to wake up every day and live in alignment with your purpose.
+
+- Schedule some time this week to think about and articulate your life purpose. Write it down where you will see it every day.
+
+- Always remember that when you are committed to a life purpose that is bigger than our problems, your problems become relatively insignificant and you will overcome them with ease.
+
+-  We must realize that the real impact and consequence of each of our choice and actions - and even our thoughts - is monumental, because every single thought, choice and action is determining who we are becoming, which will ultimately determine the quality of our lives.
+
+- Personal Insight: Limiting belief is one of the things that are limiting us from doing things we planned, it might come through our past experience and we believe we are the past. When a limiting belief comes to our mind we need to be aware of that first and discriminate the thought with our intellect and overcome it. Committing to a life purpose enables us to overcome the problems in our lives.
