@@ -11,3 +11,6 @@
 -  We must realize that the real impact and consequence of each of our choice and actions - and even our thoughts - is monumental, because every single thought, choice and action is determining who we are becoming, which will ultimately determine the quality of our lives.
 
 - Personal Insight: Limiting belief is one of the things that are limiting us from doing things we planned, it might come through our past experience and we believe we are the past. When a limiting belief comes to our mind we need to be aware of that first and discriminate the thought with our intellect and overcome it. Committing to a life purpose enables us to overcome the problems in our lives.
+
+
+[[Day-03]]

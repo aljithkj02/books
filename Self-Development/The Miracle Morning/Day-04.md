@@ -1,0 +1,21 @@
+- Not tomorrow, not next week, or next month. You have got to make a decision today that you are ready to make the necessary change to guarantee that you will be able to create the life you really want.
+
+- Your entire life changes the day that you decide you will no longer accept mediocrity for yourself.
+
+- Mediocrity has nothing to do with how you compare to other people; it is simply a result of not making the commitment to continuously learn, grow, and improve yourself. Whereas being extraordinary - which leads to extraordinary levels of success- is a result of choosing to learn, grow, and be a little bit better each day that you have been in the past.
+
+- The reality is that if we don't change now, our life won't change. If we don't get better, our life won't get better. And if we don't consistently invest time into our self-improvement, our life will not improve. Yet, most of us wake up every day and stay the same.
+
+- If you are being completely honest with yourself, you truly want to live an extraordinary life. That doesn't necessarily mean being rich of famous. Everyone's dream is different. What it does mean is living your definition of an extraordinary life.
+
+- So naturally, we rebel. We hit the snooze button and resist the inevitable act of waking up, unaware that our resistance is sending a message to the universe that we'd rather lie there in our beds - unconscious - than consciously and actively live and create the lives we say that we want.
+
+- The old saying, 'You snooze, you lose' may have a much deeper meaning than any of us realized. When you delay waking up until you have to - meaning you wait until the last possible moment to get out of bed and start your day.
+
+- When you wake up each day with passion and purpose you join the small percentage of high achievers who are living their dreams. Most importantly, you will be happy.
+
+- There is no better day than today for us to give up who we have been for who we can become, and upgrade the life we have been living for the one we really want.
+
+- Personal Insight: Find the purpose of our life and inject that into our brain. If we have a mission each day, then we automatically wake up on time and do the stuff, we don't even need an alarm.
+
+[[Day-05]]

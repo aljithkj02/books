@@ -1,0 +1,12 @@
+- It's crucial that you hydrate yourself first thing every morning. After 6 to 8 hours without water, you will naturally be mildly dehydrated, and dehydration causes fatigue. Often when people feel tired - at anytime of the day - what they really need is more water, not more sleep.
+- Morning exercise is crucial to maximizing your potential, because it puts you into a peak mental, physical, and emotional state so that you can win the day.
+- Set you intentions the night before: This is the most important step. Remember: your first though in the morning is usually the last thought you had before bed, so take responsibility for creating genuine excitement for the next morning, every night before bed.
+- Most of us are so busy trying to manage, maintain, or even just survive our life 'situation' that we don't make the time to focus on what is most important - our life. What is the difference? Our life situation is the set of external circumstances, events, people, and places that surround us. It's not who we are. We are more than our life situation.
+- Your life is made up of physical, intellectual, emotional and spiritual parts that make up every human being - or PIES for short.
+- The physical includes things like your body, health and energy. The intellectual incorporates your mind, intelligence and thoughts. The emotional takes into account your emotions, feelings, and attitudes The spiritual includes intangibles such as your spirit, soul, and the unseen higher power that oversees all.
+- Your life is where your ability to create new feelings, perspectives, beliefs, and attitudes in our 'inner' world lies, so that you can create or alter the circumstance, relationships, results, and anything else in the 'external' realm of our life situation. 
+- By focusing time and effort each day on developing your PIES, and constantly becoming a better version of yourself, your life situation will inevitable - almost automatically - improve.
+- In order to save your Level 10 life from being neglected and limited by the demands of your life situation - which ultimately leads to a life of regret, unfulfilled potential, and even mediocrity - you must prioritize and dedicate time each day to your personal development.
+- Remember, when you change your inner world - your life - then your outer world - your life situation - will improve in parallel.
+
+[[Day-07, Silence]]

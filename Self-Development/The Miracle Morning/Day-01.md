@@ -8,3 +8,5 @@
 - The crucial question, the one that we must explore and find answer to is this: What can we do now to ensure that we don't end up struggling, like the 95% majority will?
 
 - Personal Insight: 95% of the people in the world are struggling to live. They are not able to live a life they want. These people end up their life with regrets and struggles physically, mentally, financially etc. We must search for the causes of mediocrity and solutions to save us from this trap.
+
+[[Day-02]]

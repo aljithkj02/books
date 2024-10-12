@@ -1,0 +1,12 @@
+- How our sleep affects our biology is largely affected by our own personal belief about how much sleep we need. In other words, how we feel when we wake up in the morning - and this is very important distinction - is not solely based on how many hours of sleep we got, but significantly impacted by how we told ourselves we were going to feel when we woke up.
+
+- If you tell yourself you are going to feel tired in the morning, then you are absolutely going to feel tired. If you believe that you need 8 hours to feel rested, then you are not going to feel rested on anything less. But what if you changed your beliefs?
+
+- I choose to create waking up tomorrow feeling energized an excited to take on my day, and I'm grateful for that. What I found was that whether I got nine, eight , seven, six, five or even just four hours of sleep, as long as I consciously decided before bed that I was getting the perfect amount of sleep - that the hours were going to energize my body to feel wonderful in the morning - I consistently woke feeling better that I ever had before.
+
+- It's been said that nobody actually likes waking up early, but everyone loves the feeling of having woken up early. Kind of like exercising - many of us struggle to get ourselves to the gym, but all of us love the feeling of having gone to the gym. Waking up early, especially when done with purpose, always starts you off feeling empowered for your day.
+
+- The first key to waking up is to remember this : Your first thought in the morning is usually the last thought you had before you went to bed. For example, we have all had nights where we could hardly fall asleep because we are so excited about waking up the next morning. Whether it was Christmas eve, the night before your birthday, your first day of school, starting a new job, or going on vacation - as soon as the alarm clock sounds, you open your eyes with enthusiasm and excitement to get out of bed and embrace the day!  On the other hand, if your last thought before bed was something like, I can't believe I have to get up in 6 hours, I am going to be exhausted in the morning!. Then your first thought when the alarm clock goes off is likely along the lines of, 'Oh my gosh, it's already been 6 hours? Nooo! I just want to keep sleeping.  
+
+- So the key is to consciously decide every night to actively and mindfully create a positive expectation for the next morning.
+[[Day-06]]

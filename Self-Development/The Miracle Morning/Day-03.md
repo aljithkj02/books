@@ -15,3 +15,6 @@
 - Human nature is to live with a 'someday' mindset and think life will work itself out. How's that working out for everybody? This 'someday' mindset is perpetual, and it leads to a life of procrastination, unfulfilled potential and regret. You wake up one day and wonder what the heck happened; how did our life end up like this? How id you en up like this?
 
 - Personal Insight: The environment, people where we spend our time with, really matters in our growth. We become like the average of the 5 people we spend the most time with.
+
+
+[[Day-04]]
