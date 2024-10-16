@@ -19,4 +19,4 @@
 - To maximize productivity, schedule 3-5 hour blocks or half-days of singularly focused attention on ONE single activity or project, rather than trying to switch tasks every 60 minutes.
 - In order for your affirmations to be effective, it is important that you tap into your emotions while reading them. Mindlessly repeating a phrase over and over again, without feeling its truth, will have a minimal impact on you. You must take responsibility for generating authentic emotions and powerfully infusing those emotions into every affirmation you repeat to yourself.
 - Keep in mind that your affirmations will never really be a 'final' draft, because you should always be updating them. As you continue to learn, grow and evolve, so should your affirmations. When you come up with a new goal, dream, habit or philosophy you want to integrate into your life, you might find it's no longer necessary to focus on it every day, and thus choose to remove it form your affirmations.
-[[Day-09, Visualization]]
+[[09, Visualization]]

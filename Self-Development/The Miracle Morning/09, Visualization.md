@@ -10,4 +10,4 @@
 - When you visualize daily, you align your thoughts and feelings with your vision This makes it easier to maintain the motivation you need to continue taking the necessary actions.
 - Visualization can be a powerful aid to overcoming self limiting habit such as procrastination, and to taking the actions necessary to achieve your goals.
 
-[[Day-10, Exercise]]
+[[10, Exercise]]

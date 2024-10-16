@@ -10,4 +10,4 @@
 	 - Gratitude
 - The essence of meditation is simple silencing or focusing the mind for a period of time. You may or may not be aware of all the extraordinary health benefits of meditating. Study after study shows that meditation can be more effective than medication.  Studies link regular meditation to improvements in metabolism, blood pressure, brain activity, and other bodily functions. It can alleviate stress and pain, promote sleep, enhance focus and concentration, and even increase lifespan. Meditation also requires very little time. You can take advantage of the benefits of meditation in just a few minutes a day.
 
-[[Day-08, Affirmations]]
+[[08, Affirmations]]
