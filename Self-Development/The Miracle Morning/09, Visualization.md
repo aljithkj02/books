@@ -1,4 +1,4 @@
-- Visualization is the process of imagining exactly what you want to achieve or attain, and then mentally rehearsing what you will need to do to achieve or attain it.
+-  Visualization is the process of imagining exactly what you want to achieve or attain, and then mentally rehearsing what you will need to do to achieve or attain it.
 - Creative visualization enables you to design the vision that will occupy your mind, ensuring that the greatest pull on you is your future - a compelling, exciting, and limitless future.
 - "I sit upright on my living room couch, close my eyes, and take a few slow, deep breaths. For the next 5 minutes, I simply visualize myself living my ideal day, performing all of my tasks with easy, confidence, and enjoyment"
 - Our deepest fear is not that we are inadequate. Our deepest fear is that we are powerful beyond measure. It is our light, not our darkness that most frightens us.

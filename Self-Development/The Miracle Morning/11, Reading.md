@@ -1,4 +1,4 @@
-- "Reading is to the mind what exercise is to the body and prayer is to the soul. We become the books we read."
+-  "Reading is to the mind what exercise is to the body and prayer is to the soul. We become the books we read."
 
 - There are no limits to the knowledge you can gain through daily reading.
 

@@ -1,4 +1,4 @@
-- There are many worthwhile benefits of keeping  a daily journal.
+-  There are many worthwhile benefits of keeping  a daily journal.
 
 - **Gain clarity:** The process of writing something down forces us to think through it enough to understand it. Journaling will give you more clarity, allow you to brainstorm, and help you work through problems.
 
