@@ -1,0 +1,4 @@
+- Avoid switching tasks often.
+- Avoid unwanted use of social media.
+- When we are doing work or learning something go deep & avoid distractions.
+- When we choose any network tools, analyze properly and compare the pros & cons, then choose wisely.
